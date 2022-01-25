@@ -1,1 +1,4 @@
 # Nani-firstpro
+Jan 3 - HIM AND ME
+Jan 8 - AFTER HOURS
+Jan 19 - HUMBLE BEGINNINGS
